@@ -7,5 +7,5 @@
 - 💬 Ask me about ... anything related to work, gym, cars, food, travel
 - 📫 How to reach me: ...Reach out to me here or on LinkedIn: https://www.linkedin.com/in/sammyzhou/
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I am a gymaholic and I can bench 1.5x my weight. I am still small though :( 
+- ⚡ Fun fact: ... The gym is my 2nd home :D 
   
